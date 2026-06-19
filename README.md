@@ -16,7 +16,7 @@ I lost my previous GitHub account where I had my main portfolio since I was 12 y
 
 I love music and video games.
 
-P.D.: I'm a musician and I have a band (I'm the bassist).
+P.S.: I'm a musician and I have a band (I'm the bassist).
 
 If you need to contact me for any kind of help, I'm always available.
 ## My Skills Include

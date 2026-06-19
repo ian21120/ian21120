@@ -12,6 +12,8 @@ I love everything related to Linux and I hate Microsoft.
 
 I'm a free software enthusiast.
 
+I lost my previous GitHub account where I had my main portfolio since I was 12 years old, so I'm not starting over.
+
 I love music and video games.
 
 P.D.: I'm a musician and I have a band (I'm the bassist).
